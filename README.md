@@ -1,2 +1,2 @@
 # rsschool-cv
-https://Wertuyrw.github.io/rsschool-cv/
+https://wertuyrw.github.io/rsschool-cv-2024/
